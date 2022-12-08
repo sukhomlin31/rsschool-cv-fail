@@ -4,7 +4,7 @@
 ### Contact me
 **E-mail:** [ssukhomlin@yahoo.com](mailto:ssukhomlin@yahoo.com)  
 **Telegram:** [@ssuhomlyn](https://t.me/ssuhomlyn)  
-**LinkedIn:**[ssukhomlin](https://www.linkedin.com/in/ssukhomlin/)
+**LinkedIn:** [ssukhomlin](https://www.linkedin.com/in/ssukhomlin/)
 
 > I have more than 8 years of successful team management. Since 2015 I have been working in the field of recruiting and outsourcing.
 
