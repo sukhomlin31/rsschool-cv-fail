@@ -2,9 +2,9 @@
 ## **product manager**
 
 ### Contact me
-######**E-mail:** ssukhomlin@yahoo.com
-######**Telegram:** [@ssuhomlyn][def]
-######[LinkedIn](https://www.linkedin.com/in/ssukhomlin/)
+###### **E-mail:** ssukhomlin@yahoo.com
+###### **Telegram:** [@ssuhomlyn](https://t.me/ssuhomlyn)
+###### [LinkedIn](https://www.linkedin.com/in/ssukhomlin/)
 
 > I have more than 8 years of successful team management. Since 2015 I have been working in the field of recruiting and outsourcing.
 
